@@ -1,1 +1,1 @@
-Olá esse é meu repositório de estudos, tem projetos de qualidade duvidosa com o intuito de praticar somente
+Olá esse é meu repositório de estudos, com projetos de qualidade duvidosa mas unicamente com o intuito de praticar e aprender!!
